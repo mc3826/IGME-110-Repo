@@ -26,9 +26,9 @@ How do I make:
 - links to images
 - and display images in a markdown document?
 
-
-
 ## IV. Other
+`let smart = false`
+
 ![Dopey Smurf](https://vignette.wikia.nocookie.net/smurfs/images/0/0d/Dopey4.JPG/revision/latest/scale-to-width-down/240?cb=20180929070848)
 :joy:
 ```
