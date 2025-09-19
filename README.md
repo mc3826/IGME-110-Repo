@@ -1,2 +1,2 @@
 # IGME-110-Repo
-blah blah
+everything is for school
