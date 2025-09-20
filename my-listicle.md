@@ -30,7 +30,7 @@ A really close second to KAITO. His voicebank quality is insane and his voice is
 It would be a crime to leave out **VY1**. Her official hairpin and fan, and contest winner designs are beautiful. Her voice is absolutely gorgeous and her range is so broad. How can I talk about the VY's and not mention EZFG. Absolute icon that helped popularize them. *Cyber Thunder Cider* is definitely my favorite song out of their discography. The vocamash with Cyber Thunder Cider and Hurting for a Very Hurtful Pain is so good too (despite the mixing issues). Waiter, waiter! More VY1 originals please!
 
 ## ZOLA Project
-All three of them, I love. However, I like WIL the most. (can you tell I enjoy deeper voicebanks?) Heavy shout out to MioDioDaVinci for being THE **ZOLA Project** artist. They even got to do the demo for their V6 voicebanks! I forget about them a lot, but I hold a lot of love for them. They're very nostalgic to me. 
+All three of them, I love. However, I like WIL the most. (can you tell I enjoy deeper voicebanks?) Also, MioDioDaVinci being THE **ZOLA Project** artist. He even got to do the demo for their V6 voicebanks! I forget about **ZOLA Project** sometimes, but I hold a lot of love for them. They're a nostalgic group to me. 
 
 # Internet Co Ltd
 ## Gakupo
