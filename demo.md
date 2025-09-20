@@ -29,7 +29,7 @@ How do I make:
 ## IV. Other
 `let smart = false`
 
-![Dopey Smurf](dopey.webp)
+![Dopey Smurf](images/dopey.webp)
 :joy:
 ```
 const PI = 3.14;
