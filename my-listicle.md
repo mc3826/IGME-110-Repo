@@ -11,7 +11,7 @@ Some vocaloids have voicebanks that have moved companies/programs (like Teto mov
  - [Internet Co., Ltd.](#internet-co-ltd)
  - [AH-Software Co. Ltd.](#ah-software-co-ltd)
  - [Shanghai HENIAN](#shanghai-henian)
- - [Ki/oon Music Inc.](#ki-oon-music-inc.)
+ - [Ki/oon Music Inc.](#ki-oon-music-inc)
  - [UTAU](#utau)
 
 
@@ -53,7 +53,7 @@ THE Chinese Vocaloid. **Luo Tianyi** is so famous in the Chinese sphere, she eve
 ## Yuezheng Longya
 Beautiful design, beautiful voice. I beg of you, please listen to Chinese vocaloids outside of Yi Xi butcher vanity PLEASE.
 
-# Ki oon Music Inc.
+# Ki oon Music Inc
 ## Utatane Piko
 Made this catagory just for **Piko**. He deserves it, he got discontinued. A very nostalgic vocaloid for me. Remember hits even harder now. 
 
