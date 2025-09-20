@@ -13,8 +13,15 @@ Some vocaloids have voicebanks that have moved companies/programs (like Teto mov
 
 
 # Crypton
+## KAITO
+My favorite vocaloid of all time. I have two plushies of him and all of my keychains are him. All of the producers who used his **KAITO V1** voicebank made me fall in love. I would list them, but I'm a gatekeepr at heart. He sounds wonderful in folklore and electronic songs. Everyone who unironically doesn't like his voice or says he sounds like Kermit (ONLY SLIGHTLY IN HIS ENGLISH VOICEBANK, BUT ALSO NOT REALLY AT ALL) must have something wrong with their ears. Naoto Fuuga (his voice provider) is also an angel and calls **KAITO** his son. He's just so perfect. I love him.
+
+## MEIKO
+I mean **MEIKO** and KAITO are meant to compliment each other's voices. I have to put her on here because she can hit some amazing notes. I really love the folklore songs that use her. My only gripe is that I wish they hadn't pitched her up so high. People don't really do that anymore, thankfully. (EXCEPT CRYPTON WITH THEIR NT VOICEBANKS. GO EXPLODE!)
 
 # Yamaha
+## VY2
+A really close second to KAITO. His voicebank quality is insane and momocashew, the pioneer that you are. I just really like the VY concept of having an actual blank canvas so every fan design is valid. However, I'm a **Roro** superfan, even if black haired **Yuuma** technically fits his sword design more. This is partially due to Manbo-P's art style, but whatever. Go, my pink scene boy.
 
 # Internet Co., Ltd.
 
