@@ -21,7 +21,7 @@ I mean **MEIKO** and KAITO are meant to compliment each other's voices. I have t
 
 # Yamaha
 ## VY2
-A really close second to KAITO. His voicebank quality is insane and momocashew, the pioneer that you are. I just really like the VY concept of having an actual blank canvas so every fan design is valid. However, I'm a **Roro** superfan, even if black haired **Yuuma** technically fits his sword design more. This is partially due to Manbo-P's art style, but whatever. Go, my pink scene boy.
+A really close second to KAITO. His voicebank quality is insane and his voice is so smooth. momocashew, the pioneer that you are. Yamaha really blew it out of the park with both of the VYs. I also really like the VY concept of having an actual blank canvas so every fan design is valid. However, I'm a **Roro** superfan, even if that one black haired design fits his official sword design more. This is partially due to Manbo-P's art style, but there's so much badass **Roro** fanart. Go, my pink scene boy. We DO NOT talk about the A.I.VOICE nor **VY2**'s BORING snoozefest of a design. He got corporatized 💔 Give him back his hair dye. 
 
 # Internet Co., Ltd.
 
