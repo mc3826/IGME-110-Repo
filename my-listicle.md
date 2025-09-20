@@ -8,8 +8,8 @@ Some vocaloids have voicebanks that have moved companies/programs (like Teto mov
 # Table of Contents
  - [Crypton](#crypton)
  - [Yamaha](#yamaha)
- - [Internet Co., Ltd.](#internet-co.,-ltd.)
- - [AH-Software Co. Ltd.](#ah-software-co.-ltd.)
+ - [Internet Co., Ltd.](#internet-co-ltd)
+ - [AH-Software Co. Ltd.](#ah-software-co-ltd)
  - [Shanghai HENIAN](#shanghai-henian)
  - [Ki/oon Music Inc.](#ki-oon-music-inc.)
  - [UTAU](#utau)
@@ -32,14 +32,14 @@ It would be a crime to leave out **VY1**. Her official hairpin and fan, and cont
 ## ZOLA Project
 All three of them, I love. However, I like WIL the most. (can you tell I enjoy deeper voicebanks?) Heavy shout out to MioDioDaVinci for being THE **ZOLA Project** artist. They even got to do the demo for their V6 voicebanks! I forget about them a lot, but I hold a lot of love for them. They're very nostalgic to me. 
 
-# Internet Co., Ltd.
+# Internet Co Ltd
 ## Gakupo
 **Camui/Kamui Gakupo/Gackpoid** whatever, you know who he is. We're never getting another **Gakupo** voicebank with GACKT's condition and also his weird controversies (vkei bands/singers try not to get into a controversy challenge IMPOSSIBLE), but it's alright. This samurai serves the old fashion way. Lucifer carrying Gakupo's legacy, cover by cover. His voice is lovely. I love Re:nG's *接吻は刹那 -DISCLOSER ver-* and the art. Re:nG carrying **Gakupo** originals for me.
 
 ## Lily
 She's got a great, unique voice, but... NAME A LILY ORIGINAL NOT BY NIKI CHALLENGE (IMPOSSIBLE) Yes, I put **Lily** on here just because of niki. His songs, to me, are nostalgic, yet timeless. I love electronic rock so much. 
 
-# AH-Software Co. Ltd.
+# AH Software Co Ltd
 ## Hiyama Kiyoteru
 He's got silly lore, but a voice that can work for both pop and rock. **Kiyoteru's** V2 can be a little funky, but that's just the charm of it all. + his V4 voicebanks is a great improvement. 
 
@@ -53,7 +53,7 @@ THE Chinese Vocaloid. **Luo Tianyi** is so famous in the Chinese sphere, she eve
 ## Yuezheng Longya
 Beautiful design, beautiful voice. I beg of you, please listen to Chinese vocaloids outside of Yi Xi butcher vanity PLEASE.
 
-# Ki/oon Music Inc.
+# Ki oon Music Inc.
 ## Utatane Piko
 Made this catagory just for **Piko**. He deserves it, he got discontinued. A very nostalgic vocaloid for me. Remember hits even harder now. 
 
