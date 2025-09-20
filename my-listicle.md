@@ -11,7 +11,7 @@ Some vocaloids have voicebanks that have moved companies/programs (like Teto mov
  - [Internet Co., Ltd.](#internet-co.,-ltd.)
  - [AH-Software Co. Ltd.](#ah-software-co.-ltd.)
  - [Shanghai HENIAN](#shanghai-henian)
- - [Ki/oon Music Inc.](#ki/oon-music-inc.)
+ - [Ki/oon Music Inc.](#ki-oon-music-inc.)
  - [UTAU](#utau)
 
 
